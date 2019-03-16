@@ -24,7 +24,7 @@ THIS IS ADVANCED TOOL, so use it in your own risk .....@mR_AnonyMous
 7. enjoy...................
 
 
-incase of anything ......more ethical hacking follow me https://www.youtube.com/channel/UC5SpJc-fVZ5Kb6ZHfAoZ9Sw
+
 
 
 
